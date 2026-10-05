@@ -1,0 +1,2 @@
+# TFM-M-ster-de-Acceso-a-la-Abogac-a-sobre-la-exposici-n-a-agentes-biol-gicos-en-el-trabajo
+TFM del Máster de Acceso a la Abogacía sobre la exposición a agentes biológicos en el trabajo. Analiza las obligaciones del empresario (LPRL y RD 664/1997), en especial los 10 minutos de aseo del art. 7.2, y estudia el caso de la Residencia Jaizkibel con la jurisprudencia del TSJ del País Vasco y recomendaciones al cliente.
